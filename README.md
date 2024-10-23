@@ -1,0 +1,1 @@
+# Xaridorning-qoniqish-darajasini-baholash
